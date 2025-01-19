@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Nobitalqs
-- 👀 I’m interested in Games,
+- 👀 I’m interested in nothing,
 - 🌱 I’m currently learning particle physics and programming,
 - 😄
 
